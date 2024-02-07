@@ -1,6 +1,6 @@
 # Gatern机场官网
 
-最新地址：[gt-two.com](https://shuttle.gt-two.com/aff.php?aff=5915)
+最新地址：[gt-all.com](https://shuttle.gt-all.com/aff.php?aff=5915)
 
 ## 简介
 
